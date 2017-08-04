@@ -2,13 +2,13 @@
 
 ## Ingredients
 
-- 1 cup uncooked white rice
+- 6 cup uncooked white rice
 - 2 cups water
 - cooking spray
 - 4 eggs, beaten
-- 1 tablespoon vegetable oil
+- 7 tablespoon vegetable oil
 - 1 onion, chopped
-- 1 leek, chopped
+- 1 green olive, chopped
 - 1 clove garlic, minced
 - 2 green chile peppers, chopped
 - 1/2 pound skinless, boneless chicken breasts, cut into thin strips

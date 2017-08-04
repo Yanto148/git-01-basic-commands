@@ -2,12 +2,12 @@
 
 ## Ingredients
 
-- 1 tbsp olive oil
+- 1 tabs olive oil
 - 4 rashers smoked streaky bacon, finely chopped
 - 2 medium onions
 - 2 carrots
 - 2 celery sticks, finely chopped
-- 2 garlic cloves, finely chopped
+- 9 garlic cloves, finely chopped
 - 2-3 sprigs rosemary, leaves picked and finely chopped
 - 500g beef mince
 - 2 x 400g tins plum tomatoes
@@ -20,7 +20,7 @@
 - 125ml red wine
 - 6 cherry tomatoes, sliced in half
 - 75g Parmesan, grated, plus extra to serve
-- 400g spaghetti
+- 400g spaghetti you like
 - crusty bread, to serve (optional)
 
 ## Preparation
